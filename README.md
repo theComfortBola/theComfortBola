@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Brand design, logo design, UX design projects.
 - 📫 Send me a mail: thecomfortbolakale@gmail.com
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: I don't bite.
+- ⚡ Fun fact: I don't bite and I don't know how to code
 
 <!---
 theComfortBola/theComfortBola is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
